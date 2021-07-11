@@ -1,2 +1,0 @@
-# BotTutorial
-gfwruigrwuligfeaw
